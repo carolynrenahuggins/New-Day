@@ -1,1 +1,1 @@
-EveryDay New Day Expect new differnt prayed for changes accepetance approval Victorys 
+EveryDay New Day Expect New  differnt prayed for changes accepetance approval Victorys media at its most finniest sutisble for lesrning laughter truth honest mocks and impression inspirational global intrrnational lucal neighborhood everyday people 
